@@ -13,8 +13,8 @@
 🌟 Open-source projects – I love contributing to projects that push boundaries and help the community grow.
 📱 Exciting apps – Especially those that solve real-world problems or make daily life easier.
 📫 How to Reach Me:
-💌 Email: rupali@example.com
-💼 LinkedIn: linkedin.com/in/rupali1394
+💌 Email: mrupali1394@gmail.com
+💼 LinkedIn: [linkedin.com/in/rupali1394](https://www.linkedin.com/in/rupali-kumari-abba83266/)
 😄 Pronouns:
 She/Her
 ⚡ Fun Fact:
